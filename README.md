@@ -1,1 +1,1 @@
-Sight-Drive gives a brain, a voice, and a pair of hands to the visually impaired. It doesn't just read the internet; it drives it safely.
+Sight-Drive gives a brain, a voice, and a pair of hands to the visually impaired. It doesn't just read the internet; it drives it safely. Addition to the visually impaired people, it physically challenged people as well
